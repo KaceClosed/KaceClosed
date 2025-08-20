@@ -2,7 +2,7 @@
 <div align="center">
 <h4>안녕하세요!</h4>
 
-<img width="436" height="435" alt="image" src="https://github.com/user-attachments/assets/e94d6101-2a60-4a22-9675-f8b8f8399e8b" />
+<img width="736" height="735" alt="image" src="https://github.com/user-attachments/assets/e24baaad-4de0-4344-ae1e-4a4c909a61ac" />
 
 ⊣''ʸᵒᵘ ˢʰᵒᵘˡᵈ ᵉᵐᵇʳᵃᶜᵉ ᵗʰᵉ ᵐᵒᵒⁿˡⁱᵍʰᵗ, ᵃⁿᵈ ᵇᵃˢᵏ ⁱⁿ ᵗʰᵉ ˢᵘⁿ. ᵀʰᵃᵗ'ˢ ʷʰᵉⁿ ʸᵒᵘ'ˡˡ ᵗʳᵘˡʸ ᵇᵉ ʸᵒᵘʳˢᵉˡᶠ.''⊢
 
