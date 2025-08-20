@@ -1,16 +1,14 @@
-## Hi there 👋
 
-<!--
-**KaceClosed/KaceClosed** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+<div align="center">
+<h4>안녕하세요!</h4>
 
-Here are some ideas to get you started:
+<img width="436" height="435" alt="image" src="https://github.com/user-attachments/assets/e94d6101-2a60-4a22-9675-f8b8f8399e8b" />
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+⊣''ʸᵒᵘ ˢʰᵒᵘˡᵈ ᵉᵐᵇʳᵃᶜᵉ ᵗʰᵉ ᵐᵒᵒⁿˡⁱᵍʰᵗ, ᵃⁿᵈ ᵇᵃˢᵏ ⁱⁿ ᵗʰᵉ ˢᵘⁿ. ᵀʰᵃᵗ'ˢ ʷʰᵉⁿ ʸᵒᵘ'ˡˡ ᵗʳᵘˡʸ ᵇᵉ ʸᵒᵘʳˢᵉˡᶠ.''⊢
+
+The name's <strong>Junnie</strong> or <strong>Hannie</strong> || or you can just call me by whatever character you see me as I don't mind :3
+
+Int. and c+h welcome whenever!!! I don't bite unless you want me to *winkeu*
+
+Check Out ▻    🌸[STRAW](https://naruuzumakiroll.straw.page) and 🌸[RENTRY]( https://rentry.co/rafayeIs)
+</div>
