@@ -2,13 +2,13 @@
 <div align="center">
 <h4>안녕하세요!</h4>
 
-<img width="736" height="735" alt="image" src="https://github.com/user-attachments/assets/e24baaad-4de0-4344-ae1e-4a4c909a61ac" />
+<img width="736" height="736" alt="image" src="https://github.com/user-attachments/assets/93896354-b5c8-4268-833e-1211873060a3" />
 
-⊣''ʸᵒᵘ ˢʰᵒᵘˡᵈ ᵉᵐᵇʳᵃᶜᵉ ᵗʰᵉ ᵐᵒᵒⁿˡⁱᵍʰᵗ, ᵃⁿᵈ ᵇᵃˢᵏ ⁱⁿ ᵗʰᵉ ˢᵘⁿ. ᵀʰᵃᵗ'ˢ ʷʰᵉⁿ ʸᵒᵘ'ˡˡ ᵗʳᵘˡʸ ᵇᵉ ʸᵒᵘʳˢᵉˡᶠ.''⊢
+⊣''あなたは一人ではありません。なぜなら私がそばにいるからです。''⊢
 
-The name's <strong>Junnie</strong> or <strong>Hannie</strong> || or you can just call me by whatever character you see me as I don't mind :3
+The name's <strong>Hannie</strong> || or you can just call me by whatever character you see me as I don't mind :3
 
 Int. and c+h welcome whenever!!! I don't bite unless you want me to *winkeu*
 
-Check Out ▻    🌸[STRAW](https://naruuzumakiroll.straw.page) and 🌸[RENTRY]( https://rentry.co/rafayeIs)
+Check Out ▻    🌸[STRAW](https://scarsarepretty.straw.page) and 🌸[RENTRY]( https://rentry.co/rafayeIs)
 </div>
