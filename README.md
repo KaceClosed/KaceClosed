@@ -2,7 +2,7 @@
 <div align="center">
 <h4>안녕하세요!</h4>
 
-<img <img width="422" height="404" alt="image" src="https://github.com/user-attachments/assets/e334ba20-3b9f-4732-b913-44901b80944d" />
+<img width="422" height="404" alt="image" src="https://github.com/user-attachments/assets/e334ba20-3b9f-4732-b913-44901b80944d" />
 
 ⊣''あなたは一人ではありません。なぜなら私がそばにいるからです。''⊢
 
