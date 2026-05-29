@@ -10,5 +10,5 @@ The name's <strong>Hannie</strong> || or you can just call me by whatever charac
 
 Int. and c+h welcome whenever!!! I don't bite unless you want me to *winkeu*
 
-Check Out ▻    🌸[STRAW](https://morihinashoyo.straw.page) and 🌸[RENTRY]( https://rentry.co/rafayeIs)
+Check Out ▻    🌸[STRAW](https://scarsthatbleed.straw.page) and 🌸[RENTRY]( https://rentry.co/rafayeIs)
 </div>
